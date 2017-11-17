@@ -1,36 +1,36 @@
-The Great Cataclysm
-What happened to the 2 grandfathers
-What happened to Tugg's father and Hugh's mother
-What is the chest that Tugg owns that will not open
-There has been less trade amongst towns
-There have been reports of large creatures
-Ships have been unloading dead bodies
-Blighted crops
-Rumor: "The Great One cometh"
-Rumor: "Doom is near"
-Rumor: A "crazy old man" is responsible for all the doom and gloom
-Tony the bartender states the crazy old man stole some maps
-You have seen fewer numbers of other humanoid races (elves, dwarves, etc)
-The number of available clerics has diminished
-Schools of magic are gone/magic-users have disappeared
-The white dragon that would protect this region is gone
-Haven has gone silent
-Big explosion in Haven
-Green men called the Protectors are gone?
-A lone survivor returned from the last scouting party to Haven, barely.  Found by elves.
-The survivor tells the tale of a group of caves with odd evil creatures and a strong "pull" to go into the caves.  He was the only survivor.
-A bar patron runs out of the bar screaming when the survivor stated he never made it to Haven
-2 assassins (maybe more?) killed Tugg's mother.  On their bodies were found an odd tattoo and 2 crystal shards
-Medriel's tower has odd colored tiles in the floor - home remodeling or something more?
-Leeroy acts bizarre and falls unconscious after releasing some kind of force energy during battle
-Ghostly shadows seem to be following the party on the way to Haven
-Campsite found, which has map that leads to Freeport
-2 female warrior bodies are found at this camp, wearing green tunics.  They have sickle-shaped scars on their L wrist
-What is the red glow at Haven?
-Where is Princess Argenta?
-What was the explosion that caused Grim to leave Haven?
-Where is the white dragon and its rider?  Are they friend or foe?
-What is the Eye of Arik?
-Where is the "red gem" that the dwarves found and gave to Princess Argenta?
-2 more assassins found in Haven (same tattoos and masks).  They mentioned several clues.
-What is this crystal harp the party found?  
+- The Great Cataclysm
+- What happened to the 2 grandfathers
+- What happened to Tugg's father and Hugh's mother
+- What is the chest that Tugg owns that will not open
+- There has been less trade amongst towns
+- There have been reports of large creatures
+- Ships have been unloading dead bodies
+- Blighted crops
+- Rumor: "The Great One cometh"
+- Rumor: "Doom is near"
+- Rumor: A "crazy old man" is responsible for all the doom and gloom
+- Tony the bartender states the crazy old man stole some maps
+- You have seen fewer numbers of other humanoid races (elves, dwarves, etc)
+- The number of available clerics has diminished
+- Schools of magic are gone/magic-users have disappeared
+- The white dragon that would protect this region is gone
+- Haven has gone silent
+- Big explosion in Haven
+- Green men called the Protectors are gone?
+- A lone survivor returned from the last scouting party to Haven, barely.  Found by elves.
+- The survivor tells the tale of a group of caves with odd evil creatures and a strong "pull" to go into the caves.  He was the only survivor.
+- A bar patron runs out of the bar screaming when the survivor stated he never made it to Haven
+- 2 assassins (maybe more?) killed Tugg's mother.  On their bodies were found an odd tattoo and 2 crystal shards
+- Medriel's tower has odd colored tiles in the floor - home remodeling or something more?
+- Leeroy acts bizarre and falls unconscious after releasing some kind of force energy during battle
+- Ghostly shadows seem to be following the party on the way to Haven
+- Campsite found, which has map that leads to Freeport
+- 2 female warrior bodies are found at this camp, wearing green tunics.  They have sickle-shaped scars on their L wrist
+- What is the red glow at Haven?
+- Where is Princess Argenta?
+- What was the explosion that caused Grim to leave Haven?
+- Where is the white dragon and its rider?  Are they friend or foe?
+- What is the Eye of Arik?
+- Where is the "red gem" that the dwarves found and gave to Princess Argenta?
+- 2 more assassins found in Haven (same tattoos and masks).  They mentioned several clues.
+- What is this crystal harp the party found?
